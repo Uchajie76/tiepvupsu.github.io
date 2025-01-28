@@ -1,5 +1,5 @@
 Hello,
 
-This is my Machine Learning blog in Vietnamese:
+please donasi for Pi wallet:
 
-[https://machinelearningcoban.com/](http://machinelearningcoban.com/)
+GB5WN6MQOTEPD5UL7LBVBXJVWIJ4AAGSCPRCQTE63NXOWQQFDTNYL5HW
